@@ -1,4 +1,4 @@
-### I also make music :musical_note: https://soundcloud.com/pcsih_index :musical_note:
+### I also make music :musical_note: https://linktr.ee/photographscutstraightinhalf :musical_note:
 
 <!--
 **aarongermaine/aarongermaine** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
